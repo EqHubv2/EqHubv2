@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @EqHubv2
+JUST GIVE ME SOME MONEY!
